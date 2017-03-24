@@ -1,2 +1,8 @@
 # hello-world
 all constructive criticism very welcome, thank you
+
+
+  Hello World!  You have found a special page directly influenced by a sentient being.  That which has quite an appetite for knowledge!  Please relax and enjoy yourself as you are in the company of one that is aware of their own ignorace.   =)   As a Jack-of-all-trades and master of none, I have been a chef, a musician, a sound engineer, server, bartender, automotive mechanic and even a pizza delivery driver. 
+  There is one thing every job has in common and that is problems.  Occurences which present a negative influence on productivity or the safety or work experience.  Awareness of the situation and surroundings along with critical thinking abilities weigh heavily on what outcome you can achieve.  When there are other people involved, having leadership skills available built upon being able to propely motivate team members as well as effectively delegate tasks to suit individual likes, dislikes and talents greatly increases chances and magnitudes of success.  
+    I can't say I enjoy problems, for the obvious inconveniences they subject.  However I do derive some enjoyment from solving problems. I also enjoy working as a team, learning peoples strengths and weaknesses, likes and dislikes.  Seeing how they confront problems and what additional prospectives they provide.  It's always been my belief that a team can always do more than the individual pieces alone.  Just look at any huge structure, ship, or aircraft!
+     Thank you for visiting, I hope you enjoyed your stay.  And thank you to the Software Guild for showing me this great resource!
